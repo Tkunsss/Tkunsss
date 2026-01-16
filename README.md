@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Tkunsss
 - 👀 I’m interested in some coding and desining 
-- 🌱 I’m currently learning At high school :)
+- 🌱 I’m currently learning At CADT :)
 - 💞️ I’m looking to collaborate on sharing the coding and desinfing information
 - 📫 How to reach me Find me if u can XD
 
