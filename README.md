@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tkunsss
+- 👋 Hi, I’m @Tkun
 - 👀 I’m interested in some coding and desining 
 - 🌱 I’m currently learning At CADT :)
 - 💞️ I’m looking to collaborate on sharing the coding and desinfing information
